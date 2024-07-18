@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning the basics, I'm a newbie:3
 - 💞️ I’m looking to collaborate on anything and anywehre!
 - 📫 How to reach me? here~
-- 😄 Pronouns: she,her, xx chromosome XD
+- 😄 Pronouns: she, her, xx chromosome XD
 - ⚡ Fun fact: I like learning new things, love natures and broccoli<3 
 
 <!---
