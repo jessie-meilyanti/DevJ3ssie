@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DevJ3ssie ^^
+- 👋 Hi, I’m @jessie-meilyanti ^^
 - 👀 I’m interested to become a Software Engineer, God willing:)
 - 🌱 I’m currently learning the basics, I'm a newbie:3
 - 💞️ I’m looking to collaborate on anything and anywhere!
