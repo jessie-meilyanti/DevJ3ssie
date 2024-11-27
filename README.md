@@ -7,6 +7,6 @@
 - ⚡ Fun fact: I like learning new things, love natures and broccoli<3 
 
 <!---
-DevJ3ssie/DevJ3ssie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+jessie-meilyanti is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
